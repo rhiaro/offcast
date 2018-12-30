@@ -22,7 +22,7 @@ Kheli was sitting on a stool at the far end of the room. She looked pretty out o
 
 She gaped at him, and seemed to shrink. Shit. Bressik tried again, in 'Tic.
 
-She leaned forward this time, frowning. Her expression said maybe she could have made sense of what she was saying if she was sober and had slept recently, but in the bright cold light of this room Bressik could tell neither of those things were true.
+She leaned forward this time, frowning. Her expression said maybe she could have made sense of what they were saying if she was sober and had slept recently, but in the bright cold light of this room Bressik could tell neither of those things were true.
 
 Her dress was in the extravagant fashion of Cité de la Lune, which Bressik had assumed was just for show. But something about her face made them think that maybe she really *was* that far from home. Their Arabesque was rusty, but they gave it a shot.
 
